@@ -1,6 +1,6 @@
 # This is my brain chamber.  
 I think strange. Sometimes fast. Sometimes wrong.  
-I use AI — on purpose — to untangle the mess and shape what matters.  
+I use AI — with purpose — to untangle the mess and shape what matters.  
 It helps me say things clearer. Then I rewrite it again.
 
 Sometimes it works.  
