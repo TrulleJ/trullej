@@ -19,6 +19,20 @@ Sometimes again.
 
 The line isn’t clean. But it’s mine.
 
+### Find Me Elsewhere
+
+This space is still unfolding.  
+But if you’re following a thread, I’m also here:
+
+- 🌐 [trullejansberg.com](https://trullejansberg.com)  
+- 📘 [Facebook](https://www.facebook.com/trullejansberg)  
+- 📷 [Instagram](https://www.instagram.com/trullejansberg)  
+
+Things are in motion.  
+Feel free to peek — or return later.
+
+
+
 ---
 
 ### What You’ll Find Here  
